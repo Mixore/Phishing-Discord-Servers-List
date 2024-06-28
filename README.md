@@ -17,7 +17,6 @@ The servers are listed below in order of popularity, with the most popular serve
 - `767770648780079104`  | https://discord.gg/brhots
 - `1096856086453174322` | https://discord.gg/xporn
 - `769715219949420585`  | https://discord.gg/tiktokhomes
-- `769715219949420585`  | https://discord.gg/z9wGYUfBWR
 - `756543085453901895`  | https://discord.gg/xnudes
 - `739611407892611152`  | https://discord.gg/egirl-haven
 - `1075112605473050845` | https://discord.gg/tTyBgSNfrp
@@ -33,8 +32,8 @@ The servers are listed below in order of popularity, with the most popular serve
 - `1229502340684316794` | https://discord.gg/7wuFJrwvTU
 - `390911739254013962`  | https://discord.gg/needgirls
 - `1198714744190799873` | https://discord.gg/DPrm28HbNe
-- `1229063273186463815` | https://discord.gg/Z2CZbHYtPb
 - `784970482599329822`  | https://discord.gg/bestnudesever
+- `1229063273186463815` | https://discord.gg/nud3land
 
 ## Contribution
 
