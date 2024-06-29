@@ -31,7 +31,6 @@ The servers are listed below in order of popularity, with the most popular serve
 - `1229502340684316794` | https://discord.gg/7wuFJrwvTU
 - `390911739254013962`  | https://discord.gg/needgirls
 - `1198714744190799873` | https://discord.gg/DPrm28HbNe
-- `1229063273186463815` | https://discord.gg/Z2CZbHYtPb
 - `1229063273186463815` | https://discord.gg/nud3land
 - `1256476345588781096` | https://discord.gg/epmRR7BQDd
 
