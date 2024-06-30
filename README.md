@@ -12,27 +12,28 @@ This repository aims to provide a comprehensive and up-to-date list of Discord s
 
 The servers are listed below in order of popularity, with the most popular servers at the top. Popularity is determined by the number of spam messages a server has made.
 
-- `829749624607735818`  | https://discord.gg/xxxmilf
-- `1033681187102789643` | https://discord.gg/YcdtMwNpMb
-- `897224728861896794`  | https://discord.gg/xporn
-- `756543085453901895`  | https://discord.gg/xnudes
-- `739611407892611152`  | https://discord.gg/egirl-haven
-- `1075112605473050845` | https://discord.gg/tTyBgSNfrp
-- `912577089696301056`  | https://discord.gg/teenhubs
-- `852978867270451200`  | https://discord.gg/dCvZYghfa4
-- `553997794931769355`  | https://discord.gg/nsfwheaven
-- `182193863212007426`  | https://discord.gg/e-womans
-- `372813220202807297`  | https://discord.gg/xleaks
-- `1247926593805090880` | https://discord.gg/justchill
-- `1241836819398791298` | https://discord.gg/xnudesxnudes
-- `862331117553713174`  | https://discord.gg/egirlbrhot
-- `1063212833598341130` | https://discord.gg/eVhUyF5QrW
-- `909483039749464094`  | https://discord.gg/vf59PspB
-- `1229502340684316794` | https://discord.gg/7wuFJrwvTU
-- `390911739254013962`  | https://discord.gg/needgirls
-- `1198714744190799873` | https://discord.gg/DPrm28HbNe
-- `1229063273186463815` | https://discord.gg/nud3land
-- `1256476345588781096` | https://discord.gg/epmRR7BQDd
+`829749624607735818 ` | https://discord.gg/xxxmilf
+`1033681187102789643` | https://discord.gg/YcdtMwNpMb
+`756543085453901895 ` | https://discord.gg/xnudes
+`897224728861896794 ` | https://discord.gg/xporn
+`739611407892611152 ` | https://discord.gg/egirl-haven
+`1075112605473050845` | https://discord.gg/tTyBgSNfrp
+`912577089696301056 ` | https://discord.gg/teenhubs
+`852978867270451200 ` | https://discord.gg/dCvZYghfa4
+`862331117553713174 ` | https://discord.gg/egirlbrhot
+`553997794931769355 ` | https://discord.gg/nsfwheaven
+`569283221737701417 ` | https://discord.gg/YVfVKzdR4k
+`182193863212007426 ` | https://discord.gg/e-womans
+`372813220202807297 ` | https://discord.gg/xleaks
+`1247926593805090880` | https://discord.gg/justchill
+`1241836819398791298` | https://discord.gg/xnudesxnudes
+`1063212833598341130` | https://discord.gg/eVhUyF5QrW
+`1042079757128454195` | https://discord.gg/teen-sex
+`909483039749464094 ` | https://discord.gg/vf59PspB
+`1229502340684316794` | https://discord.gg/7wuFJrwvTU
+`390911739254013962 ` | https://discord.gg/needgirls
+`1198714744190799873` | https://discord.gg/DPrm28HbNe
+`1229063273186463815` | https://discord.gg/Z2CZbHYtPb
 
 ## Contribution
 
