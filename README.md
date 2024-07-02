@@ -15,27 +15,24 @@ The servers are listed below in order of popularity, with the most popular serve
 `829749624607735818 ` | https://discord.gg/xxxmilf  
 `1033681187102789643` | https://discord.gg/YcdtMwNpMb  
 `756543085453901895 ` | https://discord.gg/xnudes  
-`897224728861896794 ` | https://discord.gg/xporn  
 `739611407892611152 ` | https://discord.gg/egirl-haven  
-`912577089696301056 ` | https://discord.gg/teenhubs  
+`814086637394460742 ` | https://discord.gg/teenhubs  
 `862331117553713174 ` | https://discord.gg/egirlbrhot  
-`852978867270451200 ` | https://discord.gg/dCvZYghfa4  
 `1042079757128454195` | https://discord.gg/teen-sex  
-`553997794931769355 ` | https://discord.gg/nsfwheaven  
-`182193863212007426 ` | https://discord.gg/e-womans  
-`569283221737701417 ` | https://discord.gg/YVfVKzdR4k  
+`852978867270451200 ` | https://discord.gg/dCvZYghfa4  
 `1241836819398791298` | https://discord.gg/xnudesxnudes  
+`182193863212007426 ` | https://discord.gg/e-womans  
+`553997794931769355 ` | https://discord.gg/nsfwheaven  
+`569283221737701417 ` | https://discord.gg/YVfVKzdR4k  
 `372813220202807297 ` | https://discord.gg/xleaks  
+`465320969364307974 ` | https://discord.gg/T8ce2H4wkS  
 `1247926593805090880` | https://discord.gg/justchill  
-`330445563818672129 ` | https://discord.gg/D5kwTxNsMT  
 `1063212833598341130` | https://discord.gg/eVhUyF5QrW  
-`909483039749464094 ` | https://discord.gg/vf59PspB  
 `1229502340684316794` | https://discord.gg/7wuFJrwvTU  
 `390911739254013962 ` | https://discord.gg/needgirls  
 `1198714744190799873` | https://discord.gg/DPrm28HbNe  
 `1229063273186463815` | https://discord.gg/Z2CZbHYtPb  
-`1255165224416313417` | https://discord.gg/JEc4g9Ak  
-`1242947870500454481` | https://discord.gg/qqdURXcCmm  
+`1125916269732966583` | https://discord.gg/pornhuub  
 
 ## Contribution
 
