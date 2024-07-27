@@ -12,22 +12,22 @@ This repository aims to provide a comprehensive and up-to-date list of Discord s
 
 The servers are listed below in order of popularity, with the most popular servers at the top. Popularity is determined by the number of spam messages a server has made.
 
-`1033681187102789643` | https://discord.gg/YcdtMwNpMb  
 `967546882329034802 ` | https://discord.gg/hottestleaks  
+`456873588981628960 ` | https://discord.gg/bigleaks  
 `1066354931445018684` | https://discord.gg/teenhubs  
-`1042079757128454195` | https://discord.gg/teen-sex  
-`465320969364307974 ` | https://discord.gg/T8ce2H4wkS  
-`1241836819398791298` | https://discord.gg/xnudesxnudes  
-`182193863212007426 ` | https://discord.gg/e-womans  
-`914720650936074252 ` | https://discord.gg/xxxhub  
-`1213731284145410078` | https://discord.gg/justchill  
+`1179932786463871086` | https://discord.gg/teen-sex  
+`1160018997316702302` | https://discord.gg/e-womans  
+`1237399495529070704` | https://discord.gg/justchill  
 `1257289074193207336` | https://discord.gg/xleaks  
-`1125916269732966583` | https://discord.gg/pornhuub  
+`1049857068091330600` | https://discord.gg/pornhuub  
 `1063212833598341130` | https://discord.gg/eVhUyF5QrW  
+`449056015846080517 ` | https://discord.gg/twitterleak  
 `1255000247441162340` | https://discord.gg/needgirls  
 `1198714744190799873` | https://discord.gg/DPrm28HbNe  
 `822865755787362344 ` | https://discord.gg/egirlhot  
 `1229063273186463815` | https://discord.gg/Z2CZbHYtPb  
+`1266207390299328593` | https://discord.gg/badgirls  
+`1254534472989147187` | https://discord.gg/cDgmyTDw  
 
 ## Contribution
 
